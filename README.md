@@ -7,3 +7,5 @@ https://destinationtalent.com.au/2008/12/01/refferal-recruiting-a-conversation-w
 
 http://www.theage.com.au/news/national/psst-wanna-make-500/2006/06/16/1149964741256.html?page=fullpage#contentSwap1
 
+http://news.ycombinator.com/item?id=422720
+
